@@ -1,0 +1,2 @@
+# Pelo
+Proiect la PLP
